@@ -1,3 +1,7 @@
+# URL
+https://gab.com/groups/18818
+
+# Description
 Official Web Site
 https://sharing-projects.community/
 Donazioni > Se vuoi sostenerci puoi farlo qui: > * PAYPAL: https://paypal.me/sharingprojectscom
