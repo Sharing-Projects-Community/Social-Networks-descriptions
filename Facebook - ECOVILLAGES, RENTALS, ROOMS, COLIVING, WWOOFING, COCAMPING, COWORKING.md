@@ -1,3 +1,7 @@
+# URL
+https://www.facebook.com/sharingprojectscommunity
+
+# Description
 🇮🇹  Gruppo Italiano
 https://www.facebook.com/groups/sharingprojectscommunity.ecovillaggi.cohousing
 
