@@ -12,10 +12,10 @@ Come causale scrivere: "Regalo"<br>
 Non abbiamo ancora sponsor ma puoi sostenerci anche con un piccolo contributo, aiutandoci a far crescere questa community e facendola diventare un investimento per tutti.<br>
 Grazie! 🙏🏻
 
+Sito web: https://sharing-projects.community/
+
 ☀️  SHARING PROJECTS COMMUNITY  ☀️<br>
 `Ecovillaggi`, `affitti`, `camere`, `coliving`, `progetti`, `collaborazioni`, `scambio lavoro vitto e alloggio`, `Cerco/offro lavoro`, `Coworking (progetti condivisi)`, `Cohousing (condivisioni abitative)`, `Home Exchange (scambio casa)`, `Cerco/offro alloggio`, `Sharing rooms (condivisione di stanze)`, `Affitti`, `Camere/immobili`, `Workaway (lavoro in trasferta)`, `scambio lavoro vitto e alloggio`, ` Donazione anche di beni a titolo gratuito`, `In cerca di...`
-
-Sito web: https://sharing-projects.community/
 
 
 ℹ️  Il portale degli annunci proposti dai membri sui progetti condivisi da realizzare in Italia e all'estero, anche in 3 o 4 persone (piccoli gruppi), per chi cerca lavoro in generale o come negli ecovillaggi o in qualsiasi altra struttura, richieste emergenziali per dare aiuto a chi a bisogno di un alloggio a seguito di un momento di difficoltà o per altri problemi, per la ricerca di soluzioni abitative di cohousing, affitto, scambio delle stanze o della casa, e per la ricerca di terreni o di qualsiasi struttura.
