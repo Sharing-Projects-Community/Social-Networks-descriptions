@@ -1,3 +1,3 @@
 # Testate dei social
 
-In questo repo puoi trovare tutte le testate dei canali social di Sharing Projects Community
+Here are listed all text descriptions of our Social Networks
