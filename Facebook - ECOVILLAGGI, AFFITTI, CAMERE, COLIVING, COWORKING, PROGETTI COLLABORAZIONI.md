@@ -1,0 +1,55 @@
+🇬🇧 International Group Page
+https://www.facebook.com/groups/sharingprojectscommunity
+
+🪙 Donazioni
+Se vuoi sostenerci puoi farlo qui:
+👉🏻 https://paypal.me/sharingprojectscom
+Come causale scrivere: "Regalo"
+Non abbiamo ancora sponsor ma puoi sostenerci anche con un piccolo contributo, aiutandoci a far crescere questa community e facendola diventare un investimento per tutti.
+Grazie! 🙏🏻
+
+☀️  SHARING PROJECTS COMMUNITY  ☀️
+`Ecovillaggi`, `affitti`, `camere`, `coliving`, `progetti`, `collaborazioni`, `scambio lavoro vitto e alloggio`, `Cerco/offro lavoro`, `Coworking (progetti condivisi)`, `Cohousing (condivisioni abitative)`, `Home Exchange (scambio casa)`, `Cerco/offro alloggio`, `Sharing rooms (condivisione di stanze)`, `Affitti`, `Camere/immobili`, `Workaway (lavoro in trasferta)`, `scambio lavoro vitto e alloggio`, ` Donazione anche di beni a titolo gratuito`, ` In cerca di...`
+
+Sito web: https://sharing-projects.community/
+
+
+ℹ️  Il portale degli annunci proposti dai membri sui progetti condivisi da realizzare in Italia e all'estero, anche in 3 o 4 persone (piccoli gruppi), per chi cerca lavoro in generale o come negli ecovillaggi o in qualsiasi altra struttura, richieste emergenziali per dare aiuto a chi a bisogno di un alloggio a seguito di un momento di difficoltà o per altri problemi, per la ricerca di soluzioni abitative di cohousing, affitto, scambio delle stanze o della casa, e per la ricerca di terreni o di qualsiasi struttura.
+
+☑️ I campi in cui operiamo
+#realizzazione di ecovillaggi
+#co-housing (condivisioni abitative)
+#co-living
+#vendita di immobili e qualsiasi tipo di struttura
+#vendita di qualsiasi cosa
+#co-working (progetti condivisi)
+#workaway (lavoro in traferta)
+#home exchange (scambio casa)
+#offerte di lavoro in cambio di vitto e alloggio
+#offerte di lavoro in generale
+#condivisione di stanze (Sharing Rooms)
+#affitti di camere e appartamenti
+#metodi di coltivazione
+#autosufficienza energetica innovativa
+#bioarchitettura
+#scambio lavoro con vitto e alloggio
+#Donazione di beni a titolo gratuito
+
+🐶  Attività con bambini e animali  🐱
+https://www.facebook.com/Attivit%C3%A0-con-bambini-e-animali-103617398396517/
+
+🌐  Ci trovi anche qui
+- Telegram
+  https://t.me/ecovillaggi_affitti_coworking_co
+- GAB
+  https://gab.com/groups/18818
+- MeWe
+  https://mewe.com/group/5fc58d9bc057695a0ab2d966
+- Freeedom Cells
+  https://freedomcells.org/cells/sharing-projects-community/
+- Truth Social
+  https://truthsocial.com/group/sharing-projects-community
+- YouTube
+  https://www.youtube.com/@SharingProjectsCommunity
+
+‹
