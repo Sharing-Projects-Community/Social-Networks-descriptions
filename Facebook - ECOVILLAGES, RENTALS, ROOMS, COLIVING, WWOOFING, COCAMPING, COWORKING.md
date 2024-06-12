@@ -2,11 +2,11 @@
 https://www.facebook.com/sharingprojectscommunity
 
 # Description
-🇮🇹  Gruppo Italiano
+🇮🇹  Gruppo Italiano<br>
 https://www.facebook.com/groups/sharingprojectscommunity.ecovillaggi.cohousing
 
-🪙 Donations
-If you want help us you can do here:
+🪙 Donations<br>
+If you want help us you can do here:<br>
 👉🏻 https://paypal.me/sharingprojectscom<br>
 As text message write: "Gift"<br>
 We don't have sponsors yet but you can support us even with a small contribution, helping us grow this community and making it an investment for everyone.<br>
@@ -19,7 +19,7 @@ Website: https://sharing-projects.community/
 
 ℹ️  The portal of announces proposed by members, even 3 or 4 people (small groups), for those looking in general for a job in an ecovillage or in any other structure, on emergency requests, and give help to those who need accommodation, passing a moment of difficulty or other troubles, for the search of cohousing-housing solutions, rent, exchange of rooms or houses, and for the search for land or any structure.
 
-☑️  Fields in which we operate:
+☑️  Fields in which we operate:<br>
 #creation of ecovillages<br>
 #co-housing (housing shares)<br>
 #co-living<br>
@@ -38,10 +38,10 @@ Website: https://sharing-projects.community/
 #job exchange with room and board<br>
 #Donation of goods free of charge<br>
 
-🐶  Activities with kids and animals (ITA)  🐱
+🐶  Activities with kids and animals (ITA)  🐱<br>
 https://www.facebook.com/Attivit%C3%A0-con-bambini-e-animali-103617398396517/
 
-🌐  You can also find us here
+🌐  You can also find us here<br>
 - GAB<br>
   https://gab.com/groups/18818
 - MeWe<br>
