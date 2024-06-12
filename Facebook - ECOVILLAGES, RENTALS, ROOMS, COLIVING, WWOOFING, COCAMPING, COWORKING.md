@@ -14,7 +14,7 @@ Thanks! 🙏🏻
 
 Website: https://sharing-projects.community/
 
-☀️  SHARING PROJECTS COMMUNITY  ☀️
+☀️  SHARING PROJECTS COMMUNITY  ☀️<br>
 `Ecovillages`, `rentals`, `rooms`, `coliving`, `projects`, `collaborations`, `work exchange, room and board`, `I am looking for/offering work`, `Coworking (shared projects)`, `Cohousing ( housing shares)`, `Home Exchange (home exchange)`, `I am looking for/offering accommodation`, `Sharing rooms (sharing rooms)`, `Rentals`, `Rooms/properties`, `Workaway (work away)`, `work exchange, room and board`, `Free donation of goods too`, `Looking for...`
 
 ℹ️  The portal of announces proposed by members, even 3 or 4 people (small groups), for those looking in general for a job in an ecovillage or in any other structure, on emergency requests, and give help to those who need accommodation, passing a moment of difficulty or other troubles, for the search of cohousing-housing solutions, rent, exchange of rooms or houses, and for the search for land or any structure.
